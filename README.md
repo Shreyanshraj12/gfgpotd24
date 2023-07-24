@@ -1,1 +1,1 @@
-# gfgpotd24
+GFG POTD 24 JULY
